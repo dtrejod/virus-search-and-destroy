@@ -1,4 +1,7 @@
-		
+Archive of @dtrejod first written program.
+
+---
+
 		Thank you for using Virus Search and Destory©
 
 Agreement
